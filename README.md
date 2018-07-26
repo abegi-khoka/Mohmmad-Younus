@@ -1,5 +1,5 @@
-# Mohmmad-Younus
-I'm Mohmmad Younus. I'm a writer, translator, and researcher. I'm doing Master's in English, in the University of Dhaka (Affiliated) at Dhaka College, Bangladesh. I've been an excellent student throughout my studies.
+# Mohammad-Younus
+I'm Mohammad Younus. I'm a writer, translator, and researcher. I'm doing Master's in English, in the University of Dhaka (Affiliated) at Dhaka College, Bangladesh. I've been an excellent student throughout my studies.
 Words can win a war if you can use them properly- they can stop a war if you're better! If you are not a pro in word-craft, then you can always count on me, your personal Writing Knight, who is always ready to provide the words that can bring the best results for you, be it selling stuff, pleasing somebody, win you an argument or simply make money for you.
  I'm Mohmmad Younus. I'm a writer, translator, and researcher. I'm doing Master's in English, in the University of Dhaka (Affiliated) at Dhaka College, Bangladesh. I've been an excellent student throughout my studies.
  I've won three awards for excellence in education for two consecutive years in my higher secondary education, and numerous awards in debating, writing. I've been writing and translating for international companies for years.
